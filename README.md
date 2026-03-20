@@ -1,0 +1,1 @@
+![CV2026](Begaliev_Elbek_CV.jpg)
